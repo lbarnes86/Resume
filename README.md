@@ -1,2 +1,2 @@
 ## Resume 
-[Resume - Ivy Gabrielle Nalo.pdf]()
+[Resume - Lloyd Barnes.pdf]()
